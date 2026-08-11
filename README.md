@@ -1,13 +1,40 @@
 <div align="center">
 
-# 🎂 HBD PREETTT 💖
+# 🎂✨ HAPPY BIRTHDAY PREET ✨🎂
 
-### Another year older, but somehow still pretty. 😭
+### 💖 Another year older… somehow still pretty. 😭
 
-✨ Stay hot. Stay chaotic. Stay iconic. ✨
+<br>
 
-**More cake. More memories. Less character development. 🥂**
+> **Stay hot. Stay chaotic. Stay iconic. 🫶**
 
-🎀 💕 🥳 ✨ 🎈
+<br>
+
+🥂 More cake  
+✨ More memories  
+💅 More slaying  
+😭 Less character development
+
+<br><br>
+
+### 🎀 Your birthday mission:
+
+**Eat cake. Make memories. Cause a little chaos.**
+
+<br>
+
+<a href="https://talkutkarsh.github.io/preet-birthday/">
+
+# 🎁 CLICK HERE 🎁
+
+### 💖 Your Birthday Page 💖
+
+</a>
+
+<br>
+
+**Happy Birthday, Preettt! 🥳💗**
+
+<sub>Made with questionable amounts of effort and good intentions. 😭</sub>
 
 </div>
